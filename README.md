@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Yifat-Arbel
-- 👀 I’m interested in Programming ,Mathematics ,Finance and Sport.
+- 👀 I’m interested in Programming ,Mathematics ,Finance,Space and Sport.
 - 🌱 I’m currently learning Finance Mathematics.
 - 💞️ I’m looking to collaborate on Research.
 - 📫 How to reach me📧 ifatarbel@gmail.com 
